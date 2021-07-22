@@ -11,3 +11,6 @@ Me gusta mucho jugar al fútbol, soy arquero y juego campeonatos en cancha de 11
 También me gusta andar en bici.
 
 Las mejores cervezas del continente <3 
+### Aqui Sebastian
+Fanatico de union española y de la cerveza kunstmann torobayo, juego de mediocampo y toco piano a veces
+Todos nos apoyamos
